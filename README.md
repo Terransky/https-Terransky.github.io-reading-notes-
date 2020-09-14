@@ -1,6 +1,6 @@
 # This is my page about growth mindset
 
-Growth Mindset is the belief that people can change and improve beyond their preconceived, self (or societally) imposed limitations.
+Growth Mindset is the belief that people can change and improve beyond their preconceived self- (or societally) imposed limitations.
 
 The three ways I keep these tenets close to my heart:
 
