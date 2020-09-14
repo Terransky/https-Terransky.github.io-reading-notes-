@@ -17,3 +17,6 @@ The three ways I keep these tenets close to my heart:
 ![Suffering](https://images.gr-assets.com/quotes/1424559768p8/158868.jpg)
 
 
+Markdowns utilized: H1, image linking, bolding, lists, and emojis. :+1:
+
+
