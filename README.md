@@ -10,4 +10,10 @@ The three ways I keep these tenets close to my heart:
 
 * Nothing is Impossible
 
-![Nothing is Impossible](https://www.google.com/search?q=nothing+is+impossible+shia&tbm=isch&ved=2ahUKEwj887repenrAhUFI30KHRZPA90Q2-cCegQIABAA&oq=nothing+is+impossible+shia&gs_lcp=CgNpbWcQAzICCAAyAggAMgIIADoECAAQQzoHCAAQsQMQQzoGCAAQCBAeOgQIABAeOgQIABAYUJASWOUVYP4XaABwAHgAgAH2AYgBrQeSAQUwLjMuMpgBAKABAaoBC2d3cy13aXotaW1nwAEB&sclient=img&ei=8rhfX_yyEIXG9AOWno3oDQ&bih=977&biw=1709&gl=us#imgrc=khyYxSX-tf-b2M)
+![Nothing is Impossible](https://memegenerator.net/img/instances/65604970/nothing-is-impossible-if-you-just-dooooo-it.jpg)
+
+* Sculpting
+
+![Suffering](https://images.gr-assets.com/quotes/1424559768p8/158868.jpg)
+
+
