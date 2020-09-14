@@ -20,3 +20,6 @@ The three ways I keep these tenets close to my heart:
 Markdowns utilized: H1, image linking, bolding, lists, and emojis. :+1:
 
 
+My name is Anthony and this is the link to my github profile: https://github.com/Terransky
+
+
